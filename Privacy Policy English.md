@@ -9,8 +9,11 @@ Below we explain to you which personal data is collected and processed by us whe
 We are:
 
 Jonas Tyroller, 
+
 [adress will be here]
+
 Phone.: [phone number will be here]
+
 Email: hello@jonas-tyroller.com
 
 Personal data are individual details about personal or factual circumstances of a specific or identifiable natural person, this means all information that relates to a person.
