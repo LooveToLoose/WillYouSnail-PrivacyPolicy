@@ -1,6 +1,6 @@
 # Datenschutzerklärung „Will you Snail“
 
-## I. I. Allgemeine Informationen
+## I. Allgemeine Informationen
 
 ### Verantwortliche Stelle & betrieblicher Datenschutzbeauftragter
 
