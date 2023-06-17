@@ -1,4 +1,4 @@
-# Datenschutzerklärung „Will you Snail“
+# Datenschutzerklärung „Will You Snail“
 
 ## I. Allgemeine Informationen
 
