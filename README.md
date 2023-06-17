@@ -1,4 +1,4 @@
-# Privacy Policy of “Will you Snail”
+# Privacy Policy of “Will You Snail”
 
 ## I. General Information
 
